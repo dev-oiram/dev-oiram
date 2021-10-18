@@ -1,5 +1,5 @@
 
-### Hello  I'm Mario 👨🏻‍🚀 and ready for 🚀 take off!
+### Hi  I'm Mario 👨🏻‍🚀 and always ready for take off 🚀!
 
 ⚡ Fun fact: I love to code! 🤖
 
